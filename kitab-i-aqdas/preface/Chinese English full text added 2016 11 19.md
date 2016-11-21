@@ -14,6 +14,8 @@ http://www.bahai.org/r/111994742
 
 >《亞格達斯經》無疑屬於聖典文字，因此其內容的呈現，應清晰易讀，並能妙發讀者靈感。這不同於一般學術著作，應無繁瑣的註腳和索引編號。雖然本著述的分段方式在阿拉伯文的著述中並不常見，然而，為了協助讀者瀏覽眾多主題，並維持文筆流暢，全文特以段落劃分，並在每段加以章節編號，以利查詢與編寫索引。這同時也將為未來其它翻自英文的版本，提供一個統一的參照格式。
 
+http://www.bahai.org/r/829973374
+
 >Following the text of the Aqdas is a brief compilation of Writings of Bahá’u’lláh which are supplementary to the Most Holy Book, and a translation of the Questions and Answers published here for the first time.
 
 >在《亞格達斯經》正文之後，另摘錄巴哈歐拉為此至聖經書補述的聖典彙編，卷後則收錄首次發表的《問答錄》譯文。
