@@ -4,6 +4,8 @@ The Kitáb-i-Aqdas
 
 Preface
 
+http://www.bahai.org/r/307417904
+
 >In 1953 Shoghi Effendi, the Guardian of the Bahá’í Faith, included as one of the goals of his Ten Year Plan the preparation of a Synopsis and Codification of the Laws and Ordinances of the Kitáb-i-Aqdas as an essential prelude to its translation. He himself worked on the codification, but had not finished it when he died in 1957. The task was continued on the basis of his work, and the resulting volume was released in 1973. That publication included, in addition to the Synopsis and Codification itself and explanatory notes, a compilation of the passages from the Kitáb-i-Aqdas which had already been translated by Shoghi Effendi and published in various books. The Synopsis and Codification covered the text of both the Kitáb-i-Aqdas and the Questions and Answers which constitutes an appendix to the Aqdas. In 1986 the Universal House of Justice decided that the time had come when the preparation of an English translation of the complete text of the Most Holy Book was both possible and essential and made its accomplishment a goal of the Six Year Plan 1986–1992. Its publication in English will be followed by translations in other languages.
 
 >1953年，巴哈伊教聖護守基·阿芬第在他的十年神聖傳教計劃中，將《亞格達斯經 - 律法條文之綱要與編纂》一著作，訂定為目標之一，作為翻譯亞格達斯經的必要準備。他親自編纂法條，但在他1957年辭世時，此志業乃成未竟之功。此後，編纂工作在他完成的基礎上持續進行，最終全冊於1973年出版。那一版本的《亞格達斯經》除了《律法條文之綱要與編纂》的正文和注釋外，守基·阿芬第親自翻譯並出版的諸多《亞格達斯經》片段，也摘自各書籍於此彙編成集一同出版。《律法條文之綱要與編纂》涵蓋的內容有《亞格達斯經》經文，以及附錄的《問答錄》。世界正義院於1986年認定，著手將《至聖經書》足本翻譯成英文，在當時既是必要的也是可行的，並將其列入六年計劃(1986-1992年)的目標之一。其它語文的《亞格達斯經》譯本，也將在英文版出書後，相繼問世。
