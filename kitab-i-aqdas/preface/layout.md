@@ -6,28 +6,28 @@ Preface 前言
 
 http://www.bahai.org/r/307417904
 
-./307417904.md
+(./307417904.md)[1]
 
 http://www.bahai.org/r/111994742
 
-./111994742.md
+(./111994742.md)[2]
 
 http://www.bahai.org/r/829973374
 
-./829973374.md
+(./829973374.md)
 
 http://www.bahai.org/r/355672999
 
-./355672999.md
+(./355672999.md)
 
 http://www.bahai.org/r/958084023
 
-./958084023.md
+(./958084023.md)
 
 http://www.bahai.org/r/906169587
 
-./906169587.md
+(./906169587.md)
 
 http://www.bahai.org/r/228993410
 
-./228993410.md
+(./228993410.md)
