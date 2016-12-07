@@ -15,12 +15,7 @@ p.79
 
 >O God, dispel all those elements which are the cause of discord, and prepare for us all those things which are the cause of unity and accord.
 
->O God, descend upon us Heavenly Fragrance and change this gathering into a gathering of Heaven!
-
->Grant to us every benefit and every food.
-Prepare for us the Food of Love!
-Give to us the Food of Knowledge!
-Bestow upon us the Food of Heavenly Illumination!
+>O God, descend upon us Heavenly Fragrance and change this gathering into a gathering of Heaven! Grant to us every benefit and every food. Prepare for us the Food of Love! Give to us the Food of Knowledge! Bestow upon us the Food of Heavenly Illumination!
 
 >In your hearts remember these things, and then enter the Unity Feast.
 
@@ -47,8 +42,7 @@ p.79
 
 >上帝啊！ 降賜吾等天國的芬芳，
 令這聚會成為天堂的聚會。
-
->賞賜我們一切善美和糧食。
+賞賜我們一切善美和糧食。
 提供吾等愛之糧！
 賜予吾人智慧之糧！
 惠賜吾儕天國光輝之糧！
